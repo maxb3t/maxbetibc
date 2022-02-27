@@ -1,2 +1,0 @@
-# maxbetibc
-internasional online betting 
